@@ -1,2 +1,2 @@
-# PrecticaRecu
+# PrecticaRecu 🫠 💀
  Precticando para la recuperación
